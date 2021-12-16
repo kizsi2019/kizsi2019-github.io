@@ -1,1 +1,0 @@
-# kizsi2019-github.io
